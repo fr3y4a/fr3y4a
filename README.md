@@ -5,6 +5,7 @@ Me gustaria ir subiendo trabajos que vaya haciendo para que la rpopia comunidad 
 SKILLS
   
 CONTACTAME EN:
+
 -[Twitter](https://twitter.com/_freya08)
 
 -[Instagram](https://www.instagram.com/_freya08/)
