@@ -1,5 +1,5 @@
 estudiante de programacion y ciberseguridad
-soy estudiante y hace un par de años me interese por todo el tema de ciberseguridad y programacion y voy aprendiendo
+Soy estudiante y hace un par de años me interese por todo el tema de ciberseguridad y programacion y voy aprendiendo
 Me gustaria ir subiendo trabajos que vaya haciendo para que la propia comunidad me ayude a corregirlos y aprender
 
 SKILLS
